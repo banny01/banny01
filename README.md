@@ -12,7 +12,7 @@
 - 📞 (+94)71 034 7725
 - 📧 n.d.krishankola@gmail.com
 - 📫 71/70, Samagi Mw, Dharga Town, Sri Lanka.
-- 🕸 http://www.facebook.com/krishan.chamara
+- 🕸 https://www.facebook.com/krishan.chamara
 
 #### 🕺 Hobbies
 - 💻 Coding...
