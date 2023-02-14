@@ -15,7 +15,7 @@
 - 🕸 https://www.linkedin.com/in/krishan-chamara
 - 🕸 https://www.facebook.com/krishan.chamara
 - 🕸 https://www.facebook.com/BANNYsware
-- 🕸 http://www.bannysware.com
+- 🕸 https://www.bannysware.com
 
 #### 🕺 Hobbies
 - 💻 Coding...
