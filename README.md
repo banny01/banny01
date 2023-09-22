@@ -9,7 +9,7 @@
 - ⚡ I’m interested in developing desktop applications and web APIs.
 <br><br>☸♠️♥️♣️♦️☢☣⚠🔕👁‍🗨☸<br>
 #### 📲 Contact Details
-- 📞 (+94)71 034 7725 / (+94)77 505 7725
+- 📞 (+94)71 034 7725 / (+94)72 900 7725
 - 📧 n.d.krishankola@gmail.com
 - 📫 71/70, Samagi Mw, Dharga Town 12090, Sri Lanka.
 - 🕸 https://www.linkedin.com/in/krishan-chamara
